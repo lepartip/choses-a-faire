@@ -1,11 +1,16 @@
 # choses-a-faire
-http://partip.weebly.com/
+http:// www .twitter .com/partipqc
 
+translate the things english
 traduire en anglais les choses
 
 faire une revision 
 
-faire que les choses du programme sont au ppt powerpoint
+done    
+     faire que les choses du programme sont au ppt powerpoint 
+      
+
+faire socisaliser le ppt du parti et retweeter tweeter
 
 un wiki des ppt   https://docs.google.com/presentation/d/1rqVZ0H7YovDTmCHbWu_zkBQsTS-GedMjpAUq_686uQM/pub?start=false&loop=false&delayms=5000
 
